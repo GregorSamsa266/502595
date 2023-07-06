@@ -1,0 +1,2 @@
+# 502595
+hatayonetimi
